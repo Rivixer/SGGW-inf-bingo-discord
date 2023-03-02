@@ -1,0 +1,1 @@
+# SGGW-inf-bingo-discord
